@@ -2,7 +2,7 @@
 
 💻 Web Developer | 🚀 Tech Enthusiast | 🎯 Problem Solver  
 
-📧 yashraj03@gmail.com | 📞 +91-6375771560  
+📧 yashrajk03@gmail.com | 📞 +91-6375771560  
 
 ---
 
